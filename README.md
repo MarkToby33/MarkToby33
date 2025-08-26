@@ -12,7 +12,6 @@ I'm passionate about learning new technologies, building cool projects, and cont
 - 🎓 2nd-year CS student
 - 💻 Learning Full Stack Development
 - ⚙️ Interested in Web Dev, AI, and Game Dev
-- 🛠️ Always working on personal projects
 - 📘 Currently exploring Python, Java, and C
 
 ---
