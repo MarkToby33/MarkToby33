@@ -19,6 +19,7 @@ I'm passionate about learning new technologies, building cool projects, and cont
 
 - https://docs.google.com/document/d/1SO49B_bHgZu8B0o1STUVUvPTuWgMqhzFTvnplmspz18/edit?pli=1&tab=t.0
 - https://docs.google.com/document/d/1u7BistAV-L3AkMb78zAuyzW39kl2XXatl6gHcW0tGT4/edit?usp=sharing
+- https://docs.google.com/document/d/1IpTbs4pNFGwcPytZWTiIpdW-983prrXBZA7uuhzfN_s/edit?usp=sharing
 
 ---
 
