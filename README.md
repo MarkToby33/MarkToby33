@@ -20,6 +20,12 @@ I'm passionate about learning new technologies, building cool projects, and cont
 - https://docs.google.com/document/d/1SO49B_bHgZu8B0o1STUVUvPTuWgMqhzFTvnplmspz18/edit?pli=1&tab=t.0
 - https://docs.google.com/document/d/1u7BistAV-L3AkMb78zAuyzW39kl2XXatl6gHcW0tGT4/edit?usp=sharing
 - https://docs.google.com/document/d/1IpTbs4pNFGwcPytZWTiIpdW-983prrXBZA7uuhzfN_s/edit?usp=sharing
+- https://docs.google.com/document/d/12ZVD4WpGvwvZHjBTCd9FgF65oYTiUuK8TV_HFcCG-p0/edit?tab=t.0
+- https://docs.google.com/document/d/1gKm0VmlbBYdI0czrQDtadfyX3I0sbH7yenCDzi2uXjk/edit?tab=t.0
+- https://docs.google.com/document/d/1IhEE9kneAMDiXLCmfOe7n6u1HEgvRntdYU52xdiGhH4/edit?tab=t.0
+- https://docs.google.com/document/d/1QGFO2vzt_f0V23e3Ch_pm2aTfHjLsylW0tFUtwcSOyU/edit?tab=t.0
+- https://docs.google.com/document/d/1xcfEzs5u9vTcMOzJJPutuzr1b9lhRhH1HQn61kfBhlU/edit?tab=t.0
+- https://docs.google.com/document/d/10_y0Sr82Db3wb6FnpSv440qbLZwK682ajpBdKG7OQnc/edit?tab=t.0
 
 ---
 
